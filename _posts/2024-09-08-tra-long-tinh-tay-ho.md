@@ -1,3 +1,5 @@
+# Trà Long Tỉnh Tây Hồ (西湖龙jing茶)
+
 Trà Long Tỉnh Tây Hồ, còn được gọi là Trà Long Tỉnh (西湖龍井茶), là một trong những loại trà xanh nổi tiếng và được tôn vinh nhất của Trung Quốc, có ý nghĩa lịch sử và văn hóa sâu sắc kéo dài hàng thế kỷ. Nó được đặt theo tên của vùng Long Tỉnh, nằm ở Quận Tây Hồ của Hàng Châu, Tỉnh Chiết Giang, Trung Quốc đại lục. Loại trà này được tôn sùng không chỉ vì hương vị tinh tế mà còn vì mối liên hệ lâu đời với truyền thống học thuật và hoàng gia Trung Quốc. Phương pháp sản xuất trà và lịch sử văn hóa của nó khiến nó trở thành biểu tượng trường tồn của nghề thủ công trà Trung Quốc.
 
 ![Cách chế biến trà Long Tỉnh Tây Hồ khá giống với chế biến trà xanh tại Việt Nam](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimPuT8vf7g1sM0QBgF_NNvsDGBSsz3pKF3oOWn-RihSolQzxn0mfz1K-y16NdWFctv1Xxxy04D638BCX9PEqg4hg-Ye7ksWxiWyBJC2BzZQVgnr54kAEh9vfzN6GSN5zxGbSXeWZ9o6x2CVbNty35V0hbRba6FuC00fJyK7VYoCVUezxX5pViYpf47qUM/w104-h97-rw/Tr%C3%A0%20Long%20T%E1%BB%89nh.png)
